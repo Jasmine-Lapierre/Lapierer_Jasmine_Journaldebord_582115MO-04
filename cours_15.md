@@ -12,10 +12,7 @@ Je n'ai pas vraiment découvert quelque chose qui pourrait m'interesser, quoique
 Je voudrais bien travailler pour une entreprise comme sidlee, les employés avaient l'air vraiment interessés par leurs projets et ils avaient l'air de vriament aimer l'endroit ou ils travaillent. Il n'y a pas vraiment de domaine du multimédia qui m'interesse plus que les autres, parce que le domaine du multimédia m'interesse pas tant que ça, mais si je devais en choisir un, ce serait celui des jeux vidéos. Ce domaine m'interesse parce que les jeux videos c'est amusant et c'est satisfaisant de pouvoir jouer à un jeu quand t'as participé à sa création. Dans ce domaine là, ce qui m'interesserait le plus ce serait la conception sonore et le bruitage, car j'aime beaucoup les bruits et les sons. Sinon, la programmation d'un jeu video m'interesserait, même si je sais pas encore programmer quoi précisement. Bon Noël!
 
 
-*-
-a
-a
-a
-a
-a
+*-a a
+ -a a
+ a
 
