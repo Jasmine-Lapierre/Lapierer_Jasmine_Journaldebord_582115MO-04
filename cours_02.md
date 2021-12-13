@@ -22,6 +22,8 @@ Bien que c'est une compagnie reconnue mondialement, je crois que c'est important
 
 ### Lien 5 
 Expliquer pourquoi vous avez choisi ce lien.  
+https://www.youtube.com/watch?v=K7znZ-FvZT0
+J'ai choisi le nouveau Pokémon Snap car le premier était un de mes jeux préférés quand j'étais petite et je trouve que cette version lui rend honneur. C'est vraiment interessant de pouvoir interagir avec des créatures dans un environnement fermé. Je trouve que les graphiques sont vraiment beaux, je dirais que c'est les meilleurs qu'on a vu dans un jeu pokémon (parce que c'est pas développé par game freak🤫). Je crois que ça pourrait contribuer à ma démarche artistique, car j'aime beaucoup les animaux et les créatures inventées, alors j,aimerais beaucoup créer un jeu comme pokemon snap ou on peut voir les creatures dans leur élément naturel.
 
 ## Publication sur Teams
 Publier un de ces liens et la raison pour laquelle vous l'avez sélectionné sur le Teams. Votre lien doit être unique! Assurez-vous qu'aucun étudiant n'ait déjà publié le même. 
